@@ -1,0 +1,1 @@
+# Qlik-QSBA2021-Practice-Test-For-Quick-Preparation
